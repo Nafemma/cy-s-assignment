@@ -1,0 +1,1 @@
+this is my sister's sample assignment for a news site
